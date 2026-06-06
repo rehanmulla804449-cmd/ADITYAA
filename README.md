@@ -1,2 +1,3 @@
 # ADITYAA
-This is my First Repository 
+WELCOME TO GPT ATHANI
+cs dEPARTMENT
